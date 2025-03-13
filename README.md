@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Joelsd2005
 - 👀 I’m interested in data analytics and video games
-- 🌱 I’m currently learning business, information technology, government and politics
+- 🌱 I’m currently studying business analytics at aston university
 - 💞️ I’m looking to collaborate on work for data analytics
 - 📫 How to reach me: davisjoel805@gmail.com
 
